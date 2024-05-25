@@ -1,6 +1,6 @@
 I am a Software Developer at Company X and I love playing retro games. You can visit my website to view my game collection and maybe play a few.
 
-To reach out, connect with me on Discord here - https://discord.gg/TNnPe8NX.
+To reach out, connect with me on Discord here - https://discord.gg/xfkX8C7z
 
 **What I do?**
 
